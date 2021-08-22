@@ -25,7 +25,7 @@
 
 ## *Team*
 
-> *Individual commitment to a group effort* --that is what makes a team work, a company work, a society work, a civilization work. ~ Vince Lombardi
+> ***Individual commitment to a group effort* --that is what makes a team work, a company work, a society work, a civilization work. ~ Vince Lombardi***
 
 #### *Team leader*
 [Thalagala B.P.](https://bimalka98.github.io/)
